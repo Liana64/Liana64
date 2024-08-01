@@ -1,4 +1,6 @@
-Dear friends and gentle hearts, hello and welcome. My name is Liana and I am a woman of no particular note.
+Dear friends and gentle hearts, hello and welcome.
+
+My name is Liana and I am a woman of no particular note.
 
 It's the industrious and, really quite strange, year of our dead & departed lord, twenty twenty four (2024). I am sitting in front of a wooden desk, center of a spacious room in the back. We call it the back room. There's a fan running and two women carefully speaking in the distance. Beneath this there is a deep stillness syncopated by the harmonic trills of what we call "living in the big city."
 
